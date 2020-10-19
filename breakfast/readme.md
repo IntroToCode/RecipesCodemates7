@@ -15,6 +15,7 @@
 
 
 ### Notes: put a lot of toppings to make it fuun (berries, figs, peanut butter, nutella, or all of the above)
+Serve with Fresh Orange Juice
 
 
 
