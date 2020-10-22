@@ -1,13 +1,17 @@
 # Peanut Butter and Jelly Sandwich
 
-## Servings: 1
+## Servings: 
+1
 
-## Time to prepare: 2 mins
+## Time to prepare: 
+2 mins
 
-## Ingredients: 2 Slices of Bread, Peanut Butter (to preferrence), Jelly (to Preference)
+## Ingredients:
+2 Slices of Bread, Peanut Butter (to preferrence), Jelly (to Preference)
 
 
-## Equipment needed: Two spreading knives
+## Equipment needed: 
+2 spreading knives
 
 
 ## Steps for preparation: 
