@@ -7,7 +7,9 @@
 2 mins
 
 ## Ingredients:
-2 Slices of Bread, Peanut Butter (to preferrence), Jelly (to Preference)
+2 Slices of Bread
+Peanut Butter (to preferrence)
+Jelly (to Preference)
 
 
 ## Equipment needed: 
