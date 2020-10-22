@@ -1,31 +1,20 @@
-# Peanut Butter and Jelly Sandwich
+# Replace with recipe name
 
 ## Servings: 
-1
 
 ## Time to prepare: 
-2 mins
 
 ## Ingredients:
-2 Slices of Bread
-Peanut Butter (to preferrence)
-Jelly (to Preference)
 
 
-## Equipment needed: 
-2 spreading knives
+## Equipment needed:
 
 
-## Steps for preparation: 
-1) Set bread slices down on prep surface 
-2) Apply peanut butter to one slice 
-3) Apply jelly to other slice 
-4) Combine the two slices with the peanut butter and jelly facing inward 
-5) Enjoy!
+## Steps for preparation:
 
 
 
-### Notes: Pairs well with cold milk. 
+### Notes:
 
 
 
