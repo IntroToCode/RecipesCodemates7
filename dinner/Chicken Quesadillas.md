@@ -1,8 +1,10 @@
 # Chicken Quesadillas
 
-## Servings: 2 people
+## Servings: 
+2 people
 
-## Time to prepare: 45 minutes
+## Time to prepare: 
+45 minutes
 
 ## Ingredients:
 0.5 kg chicken breast
