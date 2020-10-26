@@ -25,8 +25,10 @@ Jelly (to Preference)
 
 
 
-### Notes: Pairs well with cold milk or perhaps Cold Beer 
-
+### Notes: 
+Pairs well with cold milk or perhaps Cold Beer 
+Be careful - peanuts can cause alergies. Consult your physician before consuming this recipe.
+For gourmet version, replace Peanut Butter by Almond Butter and use Peach Jelly. Add slices of Peaches before step 4.
 
 
 ### Codemates #
