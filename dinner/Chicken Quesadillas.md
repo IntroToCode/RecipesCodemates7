@@ -18,7 +18,7 @@
 
 
 ## Equipment needed:
-1 skillet / pan
+1 skillet / pan > make sure it's non-stick (will make everything easier)
 
 ## Steps for preparation:
 Season chicken with spices and leave in fridge for at least half an hour
@@ -31,7 +31,9 @@ Heat tortilla in skillet, add chicken, vegetables and cheese mix, then fold tort
 
 ### Notes:
 Add guacomole and sour cream to your quesadilla
+Pair it with kombucha or IPA beer to make it look like a Berkeley meal :)
 Add hot sauce to make it spicier - Mexican style!
+
 
 
 ### Codemates #
