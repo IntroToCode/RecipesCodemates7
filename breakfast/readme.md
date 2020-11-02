@@ -27,6 +27,7 @@ Hand mixer for the fancy, nothing for root-cooking
 ### Notes: 
 Put a lot of toppings to make it fuun (berries, figs, peanut butter, nutella, or all of the above)
 Serve with Fresh Orange Juice
+Best enjoyed with a friend!
 
 
 
