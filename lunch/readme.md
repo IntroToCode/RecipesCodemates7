@@ -27,6 +27,6 @@ Jelly (to Preference)
 
 ### Notes: Pairs well with cold milk or perhaps Cold Beer 
 
-
+Add bacon and bananas for a new twist on PB&J
 
 ### Codemates #
