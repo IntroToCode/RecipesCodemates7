@@ -32,6 +32,7 @@ Heat tortilla in skillet, add chicken, vegetables and cheese mix, then fold tort
 ### Notes:
 Add guacomole and sour cream to your quesadilla
 Add hot sauce to make it spicier - Mexican style!
+Add jalapenos for even more spice!
 
 
 ### Codemates #
