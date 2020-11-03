@@ -33,6 +33,7 @@ Heat tortilla in skillet, add chicken, vegetables and cheese mix, then fold tort
 Add guacomole and sour cream to your quesadilla
 Pair it with kombucha or IPA beer to make it look like a Berkeley meal :)
 Add hot sauce to make it spicier - Mexican style!
+Add jalapenos for even more spice!
 
 
 
