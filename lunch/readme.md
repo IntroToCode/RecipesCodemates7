@@ -25,9 +25,9 @@ Rasberry or Grape Jelly (fruit choice to preference)
 
 
 
-### Notes: 
-Pairs well with cold milk or perhaps cold beer
 
+### Notes:
+Pairs well with cold milk or perhaps cold beer
 Add bacon and bananas for a new twist on PB&J
 
 ### Codemates #
