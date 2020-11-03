@@ -8,10 +8,8 @@
 
 ## Ingredients:
 2 Slices of Bread
-
-Peanut Butter (to preferrence)
-
-Jelly (to Preference)
+Peanut Butter (chunkiness to preferrence)
+Rasberry or Grape Jelly (fruit choice to preference)
 
 
 ## Equipment needed: 
@@ -27,7 +25,8 @@ Jelly (to Preference)
 
 
 
-### Notes: Pairs well with cold milk or perhaps Cold Beer 
+### Notes: 
+Pairs well with cold milk or perhaps cold beer
 
 
 

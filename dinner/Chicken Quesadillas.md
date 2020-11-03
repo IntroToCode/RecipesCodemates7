@@ -18,19 +18,23 @@
 
 
 ## Equipment needed:
-1 skillet / pan
+1 skillet / pan > make sure it's non-stick (will make everything easier)
 
 ## Steps for preparation:
 Season chicken with spices and leave in fridge for at least half an hour
 Wash and cut vegetables (peppers, onion, tomato)
-Heat skillet and add olive oil then chicken breasts, leave on each side for 3-4 minutes
-Cut chicken into pieces
+Heat skillet and add olive oil then add chicken breasts, leave on each side for 3-4 minutes
+Cut chicken into smaller pieces
 Add olive oil and vegetables into skillet, leave for 4 minutes, stir occasionally 
-Heat tortilla in skillet, add chicken, vegetables and cheese mix, then fold tortilla in half and cover, leave on each side for 1-2 minutes  
+Heat tortilla in skillet, add chicken, vegetables and cheese mix, then fold tortilla in half and cover, leave on each side for 1-2 minutes  - be careful not to overcook the tortillas, this could make them too hard.
 
 
 ### Notes:
 Add guacomole and sour cream to your quesadilla
+Pair it with kombucha or IPA beer to make it look like a Berkeley meal :)
+Add hot sauce to make it spicier - Mexican style!
+Add jalapenos for even more spice!
+
 
 
 ### Codemates #
